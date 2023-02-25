@@ -9,4 +9,4 @@ Made the mistake of buying puck air freshners that said they were compatible wit
 Needed a small tray that elevated a plant slightly in order to collect excess water.
 
 ## [Napkin Holder](/Napkin%20Holder/napkin%20v2.3mf)
-Wife Asked for a simnple Napkin Holder s
+Wife Asked for a simnple Napkin Holder  
